@@ -1,2 +1,2 @@
 
-## Hello, here my blog discusstion !
+## Hello, here my blog discussions !
